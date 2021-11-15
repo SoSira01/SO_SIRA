@@ -2,6 +2,8 @@
 
 2020 - present : School of Information Technology, King Mongkut's University of Technology Thonburi
 
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;Bachelor's degree
+
 2017 - 2019 &nbsp;&nbsp;&nbsp;&nbsp;: surawiwat school suranaree university of technology
 
 https://www.linkedin.com/in/siraphob-phairoh-012946189
