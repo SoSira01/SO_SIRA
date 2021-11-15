@@ -1,6 +1,8 @@
 ### Hi I'm Siraphob Phairoh
 
-2020 - present : School of Information Technology, King Mongkut's University of Technology Thonburi
+I am currently studying in School of Information Technology,
+
+King Mongkut's University of Technology Thonburi
 
 https://www.linkedin.com/in/siraphob-phairoh-012946189
 
