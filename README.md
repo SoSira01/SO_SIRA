@@ -1,6 +1,7 @@
-Siraphob Phairoh
+### Hi I'm Siraphob Phairoh
 
-SWS02 , SIT KMUTT
+2020 - present : School of Information Technology, King Mongkut's University of Technology Thonburi
+2017 - 2019    : surawiwat school suranaree university of technology
 
 https://www.linkedin.com/in/siraphob-phairoh-012946189
 
