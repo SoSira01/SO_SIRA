@@ -1,6 +1,6 @@
 ### Hi I'm Siraphob Phairoh
 
-I am currently studying in School of Information Technology,
+I am currently studying at School of Information Technology,
 
 King Mongkut's University of Technology Thonburi
 
