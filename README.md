@@ -1,4 +1,4 @@
-<h2 style="color: green">Hi I'm Siraphob Phairoh</h2> 
+######Hi I'm Siraphob Phairoh
 
 2020 - present : School of Information Technology, King Mongkut's University of Technology Thonburi
 
